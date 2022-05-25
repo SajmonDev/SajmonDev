@@ -1,0 +1,4 @@
+- 👋 Zdravím, jsem @SajmonDev
+- 👀 Rád nastavují mc servery. Někdy dělám i designy pro mc servery
+- 🌱 Momentálně jsem zaneprázdněn.... (práce)
+- 💞️ Follow me on twitch.tv/minato_cz
